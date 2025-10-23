@@ -62,4 +62,4 @@ Hyatt, etc.
 
 It is also close to various restaurants and entertainments zones, thereby making it the perfect address to sort out your weekends. Additionally, this luxury residential project in Kolkata is close to the airport and other forms of transportation, thereby, simplifying your daily travelling affair. 
 
-Hence, the above-mentioned features perfectly justify the blog topic title as Dhoot Nucleus being an exceptional luxury project. Cocooned in a range of modern features that will carve out the best edit of urban lifestyle, make each day count at Dhoot Nucleus.
+Hence, the above-mentioned features perfectly justify the blog topic title as Dhoot Nucleus being an exceptional luxury project. Cocooned in a range of modern features that will carve out the best edit of urban lifestyle, make each day count at Dhoot Nucleus. https://dhootnucleus.com/
