@@ -6,6 +6,7 @@ With luxury flats in Newtown, Rajarhat, Dhoot Nucleus is undeniably the best des
 There is a popular saying 'Home is Where the Heart Is'. Home is undeniably the safest and cosiest space on earth. This is the space where we build memories with our near ones, where we can relax at our convenience and be ourselves without any hesitation. Hence, a home is an ideal place that defines our true nature unlike anywhere else in the world. Therefore, this space needs to be perfect. 
 
 Hence, while buying an apartment, we must invest in one that will suit our personality and our lifestyle without much hindrance. Keeping such factors in mind, Anik Industries decided to come up with a luxury residential project in Kolkata that will not only provide posh living spaces but a convenient lifestyle as well. What and where is this housing complex? Here is your answer.
+
 **Dhoot Nucleus- Providing You with the Best of Style, Luxury & Convenience**
 
 With luxury flats in Newtown, Rajarhat, Dhoot Nucleus is undeniably the best destination to buy your new home to lead a better lifestyle. Bringing about the perfect concoction of comfort and convenience, the project is shaping up to become a landmark in Rajarhat. 
