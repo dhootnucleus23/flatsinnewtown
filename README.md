@@ -1,12 +1,12 @@
 # flatsinnewtown
 With luxury flats in Newtown, Rajarhat, Dhoot Nucleus is undeniably the best destination to buy your new home to lead a better lifestyle. Bringing about the perfect concoction of comfort and convenience, the project is shaping up to become a landmark in Rajarhat.
-Dhoot Nucleus - An Exceptional Luxury Project in Kolkata
+
+**Dhoot Nucleus - An Exceptional Luxury Project in Kolkata**
 
 There is a popular saying 'Home is Where the Heart Is'. Home is undeniably the safest and cosiest space on earth. This is the space where we build memories with our near ones, where we can relax at our convenience and be ourselves without any hesitation. Hence, a home is an ideal place that defines our true nature unlike anywhere else in the world. Therefore, this space needs to be perfect. 
 
 Hence, while buying an apartment, we must invest in one that will suit our personality and our lifestyle without much hindrance. Keeping such factors in mind, Anik Industries decided to come up with a luxury residential project in Kolkata that will not only provide posh living spaces but a convenient lifestyle as well. What and where is this housing complex? Here is your answer.
-
-Dhoot Nucleus- Providing You with the Best of Style, Luxury & Convenience
+**Dhoot Nucleus- Providing You with the Best of Style, Luxury & Convenience**
 
 With luxury flats in Newtown, Rajarhat, Dhoot Nucleus is undeniably the best destination to buy your new home to lead a better lifestyle. Bringing about the perfect concoction of comfort and convenience, the project is shaping up to become a landmark in Rajarhat. 
 
@@ -14,7 +14,8 @@ To begin with, the project will provide you with 2 and 3BHK flats in Rajarhat ne
 
 These flats in Newtown, Rajarhat- service and residential, are made using cutting edge technology to provide you with the ultimate comfort quotient. The rooms in these apartments are spacious owing to a smart structural layout that will also enable easy access to the kitchen, drawing room and bathroom. 
 
-What else makes the project unique?
+**What else makes the project unique?**
+
 Its unique set of clubhouse facilities and residential project amenities. When at Dhoot Nucleus, experience the number one lifestyle owing to the presence of features like:
 
 Club House Facilities
@@ -38,6 +39,7 @@ Fire fighting arrangement and extinguishers
 Landscaped gardens, etc.
 
 What about the locational advantages?
+
 From the name itself, you have understood that Dhoot Nucleus stands tall in Rajarhat, Newtown. Being the most post regions in the city, experience the best of connectivity and commercial facilities here. Set in a stunning milieu, Dhoot Nucleus is close to some of the renowned commercial facilities that will meet your daily requirements with ease. It is close to popular addresses like:
 
 Delhi Public School
